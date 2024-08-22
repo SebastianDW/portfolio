@@ -1,2 +1,2 @@
 # portfolio
-Portfolio - Sebastian Elio Ortiz Romero | creador de contenido : Devbearloper
+Portfolio - Sebastian Elio Ortiz Romero |  Devbearloper
